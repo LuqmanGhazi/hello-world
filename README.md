@@ -28,7 +28,7 @@ no rest just prowel yoooo
 
 it's like a jungle out here 
 when you talk to someone they make themself look like a bear 
-the fact is they eat to much sauce
+the fact is they eat to much hair
 what the helll man, just stop
 you will die if I look at ya , beacue I've eaten lots like ya
 
